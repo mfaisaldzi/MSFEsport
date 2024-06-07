@@ -1,11 +1,10 @@
 MSF Esports Bakery
-Head Baker: Mr. ALEX KOH (Exquisite 3-star Michelin star bakery chef)
+Head Baker: Mr. Faisal (Exquisite 3-star Michelin star bakery chef)
 
 Open Hours: Everyday from 9am to 6pm (Except Wednesday)
 
 Location:
-Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam
-State/province/area - Selangor
+One Utama, Petaling Jaya - Selangor
 Zip code - 42600
 
 Phone Number:
